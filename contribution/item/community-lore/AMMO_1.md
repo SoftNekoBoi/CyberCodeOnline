@@ -1,1 +1,7 @@
-No one truly knows how the Energy Cells are mass produced, but what is known, is that they take skill, parts to ammunition, and effort to make one yourself.
+[Audio Recording Transcript]
+
+A:"Energy Cores, Damn we sure are dependant on these things." *Chuckles* "We'd be dead without them."
+
+B:"Speak for yourself, there are plenty of alternatives."
+
+A:"Nothing that packs quite a punch like these." *Chuckles again*
